@@ -1,1 +1,1 @@
-16kg🦾 burn🕯️in his mind📷 (Tch-tch)
+16kg🦾 burn🕯️in his mind📷 (TchX2)
